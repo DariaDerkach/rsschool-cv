@@ -1,1 +1,1 @@
-https://DariaDerkach.github.io/rsschool-cv/cv
+https://DariaDerkach.github.io/rsschool-cv/
